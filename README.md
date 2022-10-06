@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @retroDOTexe
+- 👀 I’m interested in VR
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me retrodotexebusiness@gmail.com
