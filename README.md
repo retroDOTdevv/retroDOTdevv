@@ -1,1 +1,2 @@
-me when java: "im doing java"
+My discord is retrodotexe
+Doing java
