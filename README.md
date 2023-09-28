@@ -1,2 +1,1 @@
-My discord is retrodotexe
-Doing java
+python python python python python python python python python python python python python python python python python python python python python python python python python python 
